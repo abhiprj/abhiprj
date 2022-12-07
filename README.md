@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Abhishek Prajapati
+- 👀 I’m interested in Playing Batmeanton, cricket etc
+- 🌱 I’m currently learning Btech(Computer science and Engineering)
+- 💞️ I’m looking for job or startup in MNC's company.
+- 📫 How to reach me ( Via phone no: 8604812911; email: abhimrj8355@gmail.com)
+- I have completed my Skills on: Cpp, Java, Python, Web Devlopment.
